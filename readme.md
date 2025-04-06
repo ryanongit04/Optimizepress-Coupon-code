@@ -5,7 +5,7 @@
 <p>When it comes to creating landing pages, OptimizePress stands at the top. This WordPress landing page plugin allows you to optimize pages to convert visitors into customers.</p>
 
 <h2 class="wp-block-heading">OptimizePress Coupon Code 2025</h2>
-<p>OptimizePress is offering exclusive coupon codes to new customers. If you are searching for a chance to buy this landing page builder plugin, then use the below coupon code.</p>
+<p>OptimizePress is offering exclusive coupon codes to new customers. If you are looking for a chance to buy this landing page builder plugin, then you can use the coupon code below.</p>
 
 <p>Exclusive OptimizePress coupon code offers a 50% discount on all premium plans. Please note that the 50% off offer is only applicable to new customers. If you are an existing customer then contact the sales team for a discount.</p>
 
