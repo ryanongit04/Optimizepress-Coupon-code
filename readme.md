@@ -12,7 +12,7 @@ When it comes to creating landing pages, **OptimizePress** stands at the top. Th
 
 OptimizePress is offering exclusive coupon codes to new customers. If you are looking for a chance to buy this landing page builder plugin, then you can use the coupon code below.
 
-> #### [OptimizePress Coupon: 25% Off on Essential Plan](http://bit.ly/4a5rsoJ)
+#### [OptimizePress Coupon: 25% Off on Essential Plan](http://bit.ly/4a5rsoJ)
 #### [OptimizePress Coupon: 33% Off On All Plans](http://bit.ly/4a5rsoJ)
 #### [OptimizePress Coupon: 50% Off On All Plans](http://bit.ly/4a5rsoJ)
 
